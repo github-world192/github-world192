@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **dillen99999999@gmail.com**
 
-- 📄 Know about my experiences [linkedin.com/in/hong-hao-lun-ab50691b1](linkedin.com/in/hong-hao-lun-ab50691b1)
+- 📄 Know about my experiences [linkedin.com/in/hong-hao-lun-ab50691b1](https://linkedin.com/in/hong-hao-lun-ab50691b1)
 
 - ⚡ Fun fact **I love open source**
 
